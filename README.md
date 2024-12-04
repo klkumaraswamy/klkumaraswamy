@@ -1,6 +1,5 @@
 -  Hi, I’m @klkumaraswamy
 -  I’m interested in ...development,innovation
-- 🌱 I’m currently learning ...development
 - 📫  reach out...@klk6.44(insta)
 
 
